@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-不想学英语。。。
+英语不好 不会写自我介绍
 <!---
 ZhaoYang0125/ZhaoYang0125 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
